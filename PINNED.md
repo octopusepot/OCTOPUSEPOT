@@ -39,3 +39,5 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 **P.S: I know she's not real and not also really my daughter!!!**
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
+![](https://files.catbox.moe/vprl5q.gif)
