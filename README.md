@@ -3,12 +3,20 @@
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 
+![](https://files.catbox.moe/ouwx2n.png)
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
 *Hi! My name is Loveine ♥︎ I also go by Niki and Azul, but most people call me Lov for short. I'm 17, my birthday is March 9th and I'm a pisces! o^^o*
 
 *I use any pronouns! Sometimes I have preferences but it changes constantly, so feel comfortable to ask what I feel the most happy with at the moment!
 Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ***Proshippers PLS PLS PLS DNI!***
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
+![](https://files.catbox.moe/2g9gln.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
@@ -22,7 +30,15 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
+![](https://files.catbox.moe/ouwx2n.png)
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
 *Some of my other interests are: Genshin Impact, Monster High, Ever After High, Barbie, Rainbow High, Bungo Stray Dogs, Death Note, Kuroshitsuji, Precure, Epic The Musical, Alice in Wonderland. I also like some other things like dolls, makeup, fashion, subcultures, horror, history and true crime.*
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
+![](https://files.catbox.moe/2g9gln.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
@@ -34,9 +50,17 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
-*I see Azul as my daughter. I treat her as so and call her my daughter almost all the time while talking about her. While I also do the same with other characters, it's mostly playful/unserious! But with Azul, it's really personal to me as I identify with and love her a lot. It's a bit more personal, but feel free to joke about it!*
+![](https://files.catbox.moe/ouwx2n.png)
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
+*I see Azul as my daughter. I treat her as so and call her my daughter almost all the time while talking about her. While I also do the same with other characters, it's mostly playful/unserious! But with Azul, it's really personal to me as I identify with and love her a lot. It's a bit more personal.*
 
 **P.S: I know she's not real and not also really my daughter!!!**
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
+![](https://files.catbox.moe/2g9gln.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
