@@ -14,7 +14,11 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 *Wherever you see me hanging out with anybody, it's just me with probably Floyd since they're the only person I talk with constantly and also my best friend EVER!!!*
 
-*My DNI is very basic; Proshippers/Profics and also people who hate Azul specifically. I don't care if you dislike any other of my favs, but Azul is very dear and important to me as I identify with her* ***heavily*** *and I see her as my daughter. Onto that topic, I headcannon half the TWST cast besides a few characters transfem or as using she/her. You don't have to agree with me or use she/her for them while talking with me, while it is appreciated, I dislike forcing people to agree with me. But please don't correct me on the topic or try to educate me. I really don't care and I'll still have the same view on these characters, still see them as girls and still refer to them as so.*
+*My DNI is very basic; Proshippers/Profics and also people who hate Azul specifically.*
+
+*I don't care if you dislike any other of my favs, but Azul is very dear and important to me as I identify with her* ***heavily*** *and I see her as my daughter.*
+
+*Onto that topic, I headcannon half the TWST cast besides a few characters transfem or as using she/her. You don't have to agree with me or use she/her for them while talking with me, while it is appreciated, I dislike forcing people to agree with me. But please don't correct me on the topic or try to educate me. I really don't care and I'll still have the same view on these characters, still see them as girls and still refer to them as so.*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
