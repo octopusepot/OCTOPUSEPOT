@@ -3,16 +3,20 @@
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ 
 
-![](https://files.catbox.moe/ouwx2n.png)
+![](https://files.catbox.moe/qok28c.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
 *Hi! My name is Loveine ♥︎ I also go by Niki and Azul, but most people call me Lov for short. I'm 17, my birthday is March 9th and I'm a pisces! o^^o*
 
-*I use any pronouns! Sometimes I have preferences but it changes constantly, so feel comfortable to ask what I feel the most happy with at the moment! I do always have a preference for feminine terms, unless I say something contrary at the moment.
+*I use any pronouns! Sometimes I have preferences but it changes constantly, so feel comfortable to ask what I feel the most happy with at the moment! If you don't wanna ask, just use the pronouns/terms I'm using for myself while talking to you!
 Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
-*Wherever you see me hanging out with anybody, it's just me with probably Floyd since they're the only person I talk with constantly and also my best friend EVER!!!*
+*Wherever you see me hanging out with anybody, it's just me with Floyd since they're the only person I talk with constantly and also my best friend EVER!!!*
+
+୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
+
+![](https://files.catbox.moe/hj39sa.png)
 
 *My DNI is very basic; Proshippers/Profics and also people who hate/mischaracterize Azul and Riddle specifically.*
 
@@ -22,7 +26,7 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
-![](https://files.catbox.moe/2g9gln.png)
+![](https://files.catbox.moe/qok28c.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
@@ -36,7 +40,7 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
-![](https://files.catbox.moe/ouwx2n.png)
+![](https://files.catbox.moe/hj39sa.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
@@ -44,7 +48,7 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
-![](https://files.catbox.moe/2g9gln.png)
+![](https://files.catbox.moe/qok28c.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
@@ -52,11 +56,11 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 **I also may talk non-stop when I get comfortable, so please tell me if it annoys you! :'3**
 
-(***Also, English isn't my first language!!!***)
+(***And English isn't my first language!!!***)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
-![](https://files.catbox.moe/ouwx2n.png)
+![](https://files.catbox.moe/hj39sa.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
@@ -66,7 +70,7 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
-![](https://files.catbox.moe/2g9gln.png)
+![](https://files.catbox.moe/qok28c.png)
 
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
