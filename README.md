@@ -12,8 +12,6 @@
 *I use any pronouns! Sometimes I have preferences but it changes constantly, so feel comfortable to ask what I feel the most happy with at the moment! If you don't wanna ask, just use the pronouns/terms I'm using for myself while talking to you!
 Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
-*Wherever you see me hanging out with anybody, it's just me with Floyd since they're the only person I talk with constantly and also my best friend EVER!!!*
-
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
 ![](https://files.catbox.moe/hj39sa.png)
