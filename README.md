@@ -22,6 +22,9 @@ Here's my [pronouns.cc](https://pronouns.cc/@OCTAVINELLE) for more info!*
 
 *Onto that topic, I headcannon half the TWST cast besides a few characters transfem or as using she/her. You don't have to agree with me or use she/her for them while talking with me, while it is appreciated, I dislike forcing people to agree with me. But please don't correct me on the topic or try to educate me. I really don't care and I'll still have the same view on these characters, still see them as girls and still refer to them as so.*
 
+*Here's a tier list with characters I see as girls! Something means I don't HC them as girls, girls sometimes mean sometimes I like thinking about them as girls and sometimes something else ^.^*
+![](https://files.catbox.moe/e6emx1.png)
+
 ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧
 
 ![](https://files.catbox.moe/qok28c.png)
